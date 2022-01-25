@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DenisChiriac 
+- 👀 I’m interested to become an investor or a designer.
+- 🌱 I’m currently learning programming languages at school, but i'm also looking to inform myself about the world of cryptocurrency and investments.
+- 💞️ I’m looking to collaborate with professional people.
+- 📫 How to reach me: Please contact me only for create or being a part of a project.
